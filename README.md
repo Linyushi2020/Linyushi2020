@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Linyushi2020
+- 👀 I’m interested in reading, talking, cooking and traveling.
+- 🌱 I’m currently learning hospitality.
+- 💞️ I’m looking to collaborate on this network.
+- 📫 You can say some facts about this github to me because I do not know all of it. th.
